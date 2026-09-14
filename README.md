@@ -206,3 +206,6 @@ InfraRecorder is offered as a full free version with all features and updates in
 ---
 
 Don’t miss out on the opportunity to enhance your disc burning experience with InfraRecorder. **Download InfraRecorder free today!**
+
+---
+**Last updated:** 2026-09-14 05:36:53 UTC
